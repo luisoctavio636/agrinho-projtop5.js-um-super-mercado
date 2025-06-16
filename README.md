@@ -1,0 +1,1 @@
+É um supe mercado que em o intuito de colocar aliento na mesa da população urbana e rural, os aimnto vem o campo frescos e já são coocados nas prateleiras para que a populaçãocompr os alimentos mais frscos.
